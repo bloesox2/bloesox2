@@ -1,0 +1,2 @@
+- Hi im bloesox2
+- you can reach me at bloesox(discord) and my email Bloesox2@proton.me
